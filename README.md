@@ -1,7 +1,7 @@
 <p align=center> <img src= "https://komarev.com/ghpvc/?username=aptx-sgh&color=bb4a4a&style=flat-square&label=ލޯބި✦"
-  
-  ![cd0033f784c79e3ea0b7b93c969ca2e3](https://github.com/user-attachments/assets/d65d89e8-3ccc-47eb-9595-029f49ac4973)
-  
+                   
+  ![35f67b9997098a0e0ec1279702413385](https://github.com/user-attachments/assets/061ff644-d2f4-40b4-88f2-b9f7a204411c)
+
    --------------------------------- 
                                               mừng sinh thần Di Lăng Lão Tổ
                                                       .31/10 vui vẻ！
